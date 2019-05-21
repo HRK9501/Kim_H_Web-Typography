@@ -1,1 +1,1 @@
-# Kim_H_Web-Typography_example
+# Kim_H_Web-Typography
